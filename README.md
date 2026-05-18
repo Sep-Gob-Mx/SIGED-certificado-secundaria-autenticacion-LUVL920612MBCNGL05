@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LUVL920612MBCNGL05
+LUVL920612MBCNGL05
